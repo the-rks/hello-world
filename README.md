@@ -1,3 +1,1 @@
-# hello-world
-tutorial learning how to use github
-my name is Roshan Sadhu, I am leanring how to use github woo
+hi i am roshan. i am reaally cooll with 2 L's but i never take them.I also am a furry
